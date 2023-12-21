@@ -8,7 +8,7 @@
 
 - 📫 Please feel free to reach out to me anytime **soulline0@gmail.com**
 
-- 📄 Be aware of my experiences. [https://drive.google.com/file/d/1OKWLx-YE2kTic9u85r2CSPyowPLopHqj/view](https://drive.google.com/file/d/1OKWLx-YE2kTic9u85r2CSPyowPLopHqj/view)
+- 📄 Be aware of my experiences. [https://drive.google.com/file/d/1WAwkOZDhXin5l7aZifzEgzfuVK6Quogo/view?usp=sharing])
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
